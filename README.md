@@ -1,4 +1,6 @@
-## Hi there 👋
+## Hi there 👋 EVIL GANG 
+
+<img src="Untitled37_20260803190329.png" width="100%">
 
 <!--
 **hate-town/hate-town** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
