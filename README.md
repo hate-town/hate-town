@@ -1,6 +1,13 @@
-## Hi there 👋 EVIL GANG 
+## Hi there 👋 EVIL GANG. WELCOME TO EVIL PT RANTS.
 
 <img src="Untitled37_20260803190329.png" width="100%">
+
+## EVIL RANTS. EVIL. RANT BELOW 
+btw im banning anything with ILLEGAL things. you know what ILLEGAL is.
+
+
+https://hate-town.atabook.org
+
 
 <!--
 **hate-town/hate-town** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
