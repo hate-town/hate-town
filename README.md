@@ -3,7 +3,9 @@
 <img src="Untitled37_20260803190329.png" width="100%">
 
 ## EVIL RANTS. EVIL. RANT BELOW 
-btw im banning anything with ILLEGAL things. you know what ILLEGAL is.
+btw im banning anything with ILLEGAL things. 
+NO POLITICS NO RACISM NO XENOPHOBIA NO ABLEISM NO DISCRIMINATION. THAT IS TOO EVIL.
+BAD TAKE = I BLOCK YOU. MY PAWNS CAN ONLY HAVE GOOD TAKES.
 
 
 https://hate-town.atabook.org
